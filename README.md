@@ -1,1 +1,4 @@
-# Strategy-Marketing-Agency
+# Strategy Marketing Agency
+Market strategy agencies help businesses connect buyers to their services or products by identifying target markets. They are responsible for brand development and exposure through advertising and marketing.
+They are Deloitte, Ernst & Young (EY), PricewaterhouseCoopers (PwC), and Klynveld Peat Marwick Goerdeler (KPMG). Aside from auditing services, the Big Four offer tax, [Strategy Marketing Agency](https://rebellionmarketing.co.uk/services/marketing-strategy/) and management consulting, valuation, market research, assurance, and legal advisory services.
+Based on revenue generated in 2021, the largest advertising agency group worldwide was WPP, headquartered in London, with 17.6 billion dollars in revenue. The Japanese agency Dentsu ranked sixth that year, generating 9.9 billion U.S. dollars in revenue in 2021.
